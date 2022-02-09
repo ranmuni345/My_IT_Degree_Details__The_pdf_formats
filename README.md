@@ -1,1 +1,1 @@
-# My_Degree_E_Transcript_The_pdf_formats
+# My_IT_Degree_Details_The_pdf_formats
